@@ -1,6 +1,6 @@
 
 
-# Halo semua! 
+# Kon'nichiwa minasan! 
 
 Perkenalkan nama saya **Retno Ayu Astari**.\
 
